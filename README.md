@@ -10,7 +10,4 @@ I ALSO LOVE WRITING WHICH INCLUDES POEMS ,CONTENT WRITING ETC, YOU CAN CHECK MY 
 - 🏢⚒️:https://www.writerscafe.org/Shubho_d10/writing/
 
 
-<!---
-shubhod10/shubhod10 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+
